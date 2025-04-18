@@ -3,7 +3,6 @@
 💼 I'm currently working as a Business/Finance Operations Analyst at a healthcare management company<br/>
 🎓 MS in Business Analytics at The George Washington University<br/>
 🎓 MS in Business Administration at University of Illinois at Urbana-Champaign<br/>
-🎓 BA in Business Administration at Macau University of Science and Technology<br/>
 
 👩‍💻 Interests
 - 📈 Business Strategy & Marketing Analysis<br/>  
@@ -14,7 +13,6 @@
 When I’m not analyzing data or crafting reports, you’ll find me:
 - 🥾 Hiking forest trails<br/>
 - 📸 Snapping photos of everyday beauty<br/>
-- 🎨 Painting with oils<br/>
 - 🍳 Cooking up new recipes in the kitchen<br/>
 
 And most importantly, I’m the proud dog mom of a two-year-old **mini Schnauzer** named **Yuki** 🐶💕<br/>
